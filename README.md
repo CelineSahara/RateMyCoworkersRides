@@ -10,7 +10,7 @@ Amber H. 4.5★
 Felt safe and had a nice chat!
 
 Hans R. 2.5★  
-Terrible driver, drove with his feet, had his eyes closed the whole ride and only talked about his hats
+Terrible driver, drove with his feet, had his eyes closed the whole ride and only talked about his hats  
 Ran a red light, good tunes, decent at parking
 
 Jeremy O.  5.0★  
