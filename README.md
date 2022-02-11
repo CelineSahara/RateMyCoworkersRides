@@ -4,13 +4,12 @@
 Walk, bus or bike to the OAC? Ever ask a coworker with a car to drive you back?  
 Don't be shy, submit a review to give them feedback or roast them!
 
-## Driver Ratings
-James R. 5.0★  okay                        
-  
-Mike D.  5.0★  made me scrape ice off his windshield  
+## Driver Ratings 
+Mike D.  4.5★  made me scrape ice off his windshield  
   
 Jeremy O. 5.0★  nice car that could fit a bike
 
+James R. 4.0★  safe drive, but he played Kanye   
 
 ## How to Submit a Review 
 Click the link below!  
