@@ -17,5 +17,5 @@ Click the link below!
 https://forms.gle/CbV54sRvDHQCc3zFA 
 
 ## Are you a driver?
-Fill out the form below.  
+Fill out the form below  
 https://forms.gle/osUtTuGwvAQiQJKA6 
