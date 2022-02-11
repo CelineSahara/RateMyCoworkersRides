@@ -5,14 +5,11 @@ Walk, bus or bike to the OAC? Ever ask a coworker with a car to drive you back?
 Don't be shy, submit a review to give them feedback or roast them!
 
 ## Driver Ratings
-James R. 5.0★  
-okay                        
+James R. 5.0★  okay                        
   
-Mike D.  5.0★  
-made me scrape ice off his windshield  
+Mike D.  5.0★  made me scrape ice off his windshield  
   
-Jeremey O. 5.0★  
-nice car that could fit a bike
+Jeremy O. 5.0★  nice car that could fit a bike
 
 
 ## Submit a Review  
