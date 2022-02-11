@@ -17,5 +17,5 @@ Click the link below!
 <a href=" https://forms.gle/CbV54sRvDHQCc3zFA "> Rating Form </a>
 
 ## Are you a driver?
-Fill out the form below  
+Fill out the form below:  
 <a href=" https://forms.gle/osUtTuGwvAQiQJKA6 "> Driver Form </a>
