@@ -6,18 +6,18 @@ Don't be shy, submit a review to give them feedback or roast them!
 
 ## Driver Ratings 
 
-Amber H. 4.5★ 
+Amber H. 4.5★  
 Felt safe and had a nice chat!
 
 Hans R. 2.5★  
-Terrible driver, drove with his feet, had his eyes closed the whole ride and only talked about his hats, decent park job 
+Terrible driver, drove with his feet, had his eyes closed the whole ride and only talked about his hats, decent park job  
 Ran a red light, good tunes tho
 
 Jeremy O.  5.0★  
 Nice car that could fit a bike
 
 James R.  4.0★  
-Safe drive, but he played Kanye
+Safe drive, but he played Kanye  
 Fit 3 people and my bike against my will  
 
 Mike D.  4.5★  
