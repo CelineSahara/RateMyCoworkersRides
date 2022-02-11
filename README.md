@@ -12,10 +12,10 @@ Mike D.  5.0★  made me scrape ice off his windshield
 Jeremy O. 5.0★  nice car that could fit a bike
 
 
-## Submit a Review  
+## How to Submit a Review 
 Click the link below!  
-<a href=" https://forms.gle/CbV54sRvDHQCc3zFA "> Driver Form </a>
+<a href=" https://forms.gle/CbV54sRvDHQCc3zFA "> Rating Form </a>
 
 ## Are you a driver?
 Fill out the form below  
-https://forms.gle/osUtTuGwvAQiQJKA6 
+<a href=" https://forms.gle/osUtTuGwvAQiQJKA6 "> Driver Form </a>
