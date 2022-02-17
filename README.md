@@ -11,7 +11,7 @@ Felt safe and had a nice chat!
 
 Hans R. 3.5★  
 Terrible driver, drove with his feet, had his eyes closed the whole ride and only talked about his hats  
-Ran a red light, good tunes, decent at parking
+Ran a red light, good tunes, decent at parking  
 Helped a sister out when she should not have walked home. ily hans  
 
 Jeff V.  3.5★  
