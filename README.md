@@ -17,7 +17,7 @@ Helped a sister out when she should not have walked home. ily hans
 Jeff V.  3.5★  
 Nice car with AWD but had a very messy passenger seat. More empty cups of coffee than I can count on both hands   
 
-Jeremy O.  4.75★  
+Jeremy O.  5.0★  
 Nice car that could fit a bike  
 Almost backed into 3 people, solid ride  
 
@@ -26,7 +26,7 @@ Safe drive, but he played Kanye
 Fit 3 people and my bike against my will  
 Took me to the wrong dorm, legitimately ran a red light, and forced me to listen to American Pie  
 
-Mike D.  4.5★  
+Mike D.  4.8★  
 Made me scrape ice off his windshield  
 The highlight of my night is getting a ride home from Mike.
 
