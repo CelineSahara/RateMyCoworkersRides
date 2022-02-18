@@ -18,7 +18,8 @@ Jeff V.  3.5★
 Nice car with AWD but had a very messy passenger seat. More empty cups of coffee than I can count on both hands   
 
 Jeremy O.  4.75★  
-Nice car that could fit a bike
+Nice car that could fit a bike  
+Almost backed into 3 people, solid ride  
 
 James R.  4.7★  
 Safe drive, but he played Kanye  
